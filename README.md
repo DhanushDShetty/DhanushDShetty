@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @DhanushDShetty
+- 👋 Hi, I’m Dhanush
 
 - 📫 How to reach me ... 7dhanushshetty@gmail.coom
 
